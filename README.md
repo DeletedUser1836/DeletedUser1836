@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: discord: lidijabradara //(this is my second acc so i can a little late with the answers)
 - 😄 Pronouns: i am normal so he/him
-- ⚡ Fun fact: I am a huma!
+- ⚡ Fun fact: I am a human, that loves guns and other military stuff!
 
 <!---
 DeletedUser1836/DeletedUser1836 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
